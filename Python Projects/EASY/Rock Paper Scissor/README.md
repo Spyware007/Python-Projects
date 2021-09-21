@@ -1,2 +1,2 @@
-Feeling bored, you can try out rock papr scissor !!
+Feeling bored, you can try out rock paper scissor !!
 the more you play the more is the fun......
